@@ -1,8 +1,6 @@
 ## That's me! 👀
 Young developer looking to make new programming experiences 😄.
 
-Software Engineering student @unisa.
-
 Italy ❤️🇮🇹.
 
 ### My Statistics
